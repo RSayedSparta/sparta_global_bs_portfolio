@@ -1,0 +1,1 @@
+# sparta_global_bs_portfolio
